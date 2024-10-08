@@ -19,4 +19,4 @@ I strive to create solutions that are not only functional but also empower users
 
 I’m always open to collaboration and discussions around technology. Feel free to reach out!
 
-[Contact me](mailto:evans@example.com)
+[Contact me](mailto:evanseburu32@gmail.com)
